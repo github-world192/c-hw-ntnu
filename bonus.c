@@ -1,0 +1,1 @@
+"I think our teacher is proficient in teaching and is a good doctor. Doing his homework enhancing my brain skill also dealing with my insonmia"
